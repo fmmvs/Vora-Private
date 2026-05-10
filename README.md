@@ -1,3 +1,3 @@
-Discord: @fmmv
+Discord: @myfag
 
-For discord tools checker/claimer
+For discord checker/claimer
